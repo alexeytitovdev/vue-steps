@@ -1,2 +1,2 @@
 1. Steps
-http://joxi.ru/Vrw46Vwi4dzkZm
+<img src="http://joxi.ru/Vrw46Vwi4dzkZm" />
